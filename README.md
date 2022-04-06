@@ -1,0 +1,1 @@
+https://medium.com/@Arrivant_/how-to-verify-nfts-in-an-anchor-program-a051299acde8
